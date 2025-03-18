@@ -18,7 +18,7 @@
 - Inventory management solutions
 
 ## 📫 How to Reach Me
-- Email: agripa@example.com
+- Email: agripakaruru62@gmail.com
 - LinkedIn: [linkedin.com/in/agripa](https://linkedin.com/in/agripa)
 - Twitter: [@silverzw](https://twitter.com/silverzw)
 
